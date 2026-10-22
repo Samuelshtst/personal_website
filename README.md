@@ -1,1 +1,6 @@
-# personal_website
+website in building,
+
+see you soon! 👋
+
+sincerely,
+samuel sahata sitompul
